@@ -1,6 +1,6 @@
-# Technicolor
+# Technicolour
 
-Yes, without a U.
+Add the u you iliterate piece of shit
 
 ## Credits
 
